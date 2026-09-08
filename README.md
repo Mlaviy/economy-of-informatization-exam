@@ -1,0 +1,1 @@
+# economy-of-informatization-exam
